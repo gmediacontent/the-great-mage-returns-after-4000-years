@@ -1,2 +1,1 @@
-# The Great Mage Returns After 4000 Years
-Frey Blake est un pauvre élève de la West Road Academy mais aussi la honte de sa famille. Il choisit de mourir après avoir vécu une existence douloureuse. Cependant, une nouvelle âme prend soudain possession du corps de l'élève. Le corps de Frey Blake a maintenant une chance de se venger.
+# the-great-mage-returns-after-4000-years
